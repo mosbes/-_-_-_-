@@ -1,12 +1,14 @@
-We're no strangers to love
-You know the rules and so do I (do I)
-A full commitment's what I'm thinking of
-You wouldn't get this from any other guy
-I just wanna tell you how I'm feeling
-Gotta make you understand
-never gona give you up
-never gona get you doun
-Never gonna give you up
+Somebody once told me
+The world is gonna roll me
+I ain't the sharpest tool in the shed
+She was looking kind of dumb
+With her finger and her thumb
+In the shape of an "L" on her forehead
+Well, the years start coming
+And they don't stop coming
+Fed to the rules and I hit the ground running
+Didn't make sense not to live for fun
+Your brain gets smart, but your head gets dumbgive you up
 Never gonna let you down
 Never gonna run around and desert you
 Never gonna make you cry
